@@ -4,3 +4,4 @@ Classe 5ait as 2017-2018
 ### Francesco 
 porto gli occhiali
 ### Alexis
+gioco a pallone e ho gli occhi azzurri
